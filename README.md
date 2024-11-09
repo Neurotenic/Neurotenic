@@ -18,6 +18,9 @@
 - - **PLS INT WITH ME!!**
 
 - - **Sign my strawpage if you want!! i check my gimmiks daily :)**
+  
+- - **i am a big capitano lover and glazer**
+    
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
