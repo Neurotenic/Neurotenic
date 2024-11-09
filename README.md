@@ -1,12 +1,32 @@
-## Haii! 
-Make sure to check out my strawpage for more information!! <3
+[![MasterHead](https://i.pinimg.com/564x/2b/97/1e/2b971e78aaee1482a0e5cb9850738d67.jpg)
 
-→  She/her.
+<h1 align="center">Haii!, I'm Hypo! ( or Neuro)</h1>
+<h3 align="center">Make sure to check my strawpage for more!</h3>
 
-→ all my ponies are a big DNC!
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=neurotenic&label=Profile%20views&color=0e75b6&style=flat" alt="neurotenic" /> </p>
 
-→ Please dont be scared to approach me i swear im cool!
+- - **She/her**
 
-→ W2I mostly since im most of the time afk
+- - **Genshin impact , Honkai starrail, Wuthering waves and many more!**  
 
-→ i am a huge capitano liker
+- - **no ships unless specifically stated in my ponies user**
+
+- - **I ALWAYS ALLOW C+H**
+
+- - **feel free to ask me anything!**
+
+- - **PLS INT WITH ME!!**
+
+- - **Sign my strawpage if you want!! i check my gimmiks daily :)**
+
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+<a href="https://twitter.com/neurotenic" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="neurotenic" height="30" width="40" /></a>
+<a href="https://www.youtube.com/c/hypo7195" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="hypo7195" height="30" width="40" /></a>
+<a href="https://discord.gg/neurotenic" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="neurotenic" height="30" width="40" /></a>
+</p>
+
+<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=neurotenic&show_icons=true&locale=en" alt="neurotenic" /></p
+                                                                                                                                                 
+![1a368593569b13299fa3e920fda9cedf (1)](https://github.com/user-attachments/assets/c8d3a77e-2ede-4251-a1b6-28ad37d60e3b)
+- - **this gent so peculiar** 😼
