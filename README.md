@@ -26,7 +26,6 @@
 <a href="https://discord.gg/neurotenic" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="neurotenic" height="30" width="40" /></a>
 </p>
 
-<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=neurotenic&show_icons=true&locale=en" alt="neurotenic" /></p
                                                                                                                                                  
 ![1a368593569b13299fa3e920fda9cedf (1)](https://github.com/user-attachments/assets/c8d3a77e-2ede-4251-a1b6-28ad37d60e3b)
 - - **this gent so peculiar** 😼
