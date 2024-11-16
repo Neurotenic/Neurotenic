@@ -5,21 +5,23 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=neurotenic&label=Profile%20views&color=0e75b6&style=flat" alt="neurotenic" /> </p>
 
-- - **She/her**
+-  **She/her**
 
-- - **Genshin impact , Honkai starrail, Wuthering waves and many more!**  
+-  **Im in many fandoms, such as genshin, wuwa, starrail, subnautica, monster hunter, ect.**  
 
-- - **no ships unless specifically stated in my ponies user**
+-  **no ships unless specifically stated in my ponies user**
 
-- - **I ALWAYS ALLOW C+H**
+-  **I ALWAYS ALLOW C+H**
 
-- - **feel free to ask me anything!**
+-  **all my ponies are a obvious dnc**
 
-- - **PLS INT WITH ME!!**
+-  **PLS INT WITH ME!!**
 
-- - **Sign my strawpage if you want!! i check my gimmiks daily :)**
+-  **Sign my strawpage if you want!! i check my gimmicks daily :)**
   
-- - **i am a big capitano lover and glazer**
+-  **i am a big capitano lover and glazer**
+
+-  **I am looking for people to play with on genshin and wuwa please im desperate🙏**
     
 
 <h3 align="left">Connect with me:</h3>
@@ -31,4 +33,4 @@
 
                                                                                                                                                  
 ![1a368593569b13299fa3e920fda9cedf (1)](https://github.com/user-attachments/assets/c8d3a77e-2ede-4251-a1b6-28ad37d60e3b)
-- - **this gent so peculiar** 😼
+-  **this gent so peculiar** 😼
