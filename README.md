@@ -9,8 +9,8 @@
 • Mavuitano is a big dni for me, or any ship in general UNLESS stated in my ponies name pslpls, racists, homophobes, basic criteria               
 • i heavily encourage C+H            
 • My humor can end up to be unhinged or just weird  if its a bother to you please tell me and ill stop!! 
-• HEAVILY hyperfixated on capitano and blade 
-• im cool i swear
+• HEAVILY hyperfixated on capitano and blade                              
+• im cool i swear                                        
 
 **check my strawpage for more!** (being reworked)
 
