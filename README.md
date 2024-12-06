@@ -5,10 +5,12 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=neurotenic&label=Profile%20views&color=0e75b6&style=flat" alt="neurotenic" /> </p>
 
-•  I am a minor!! please keep that in mind!              
-• Mavuitano is a big dni for me, or any ship in general UNLESS stated in my ponies name. other dni is people under the age of 14, racists, homophobes, basic criteria               
+•  I am a minor please keep that in mind!              
+• Mavuitano is a big dni for me, or any ship in general UNLESS stated in my ponies name pslpls, racists, homophobes, basic criteria               
 • i heavily encourage C+H            
 • My humor can end up to be unhinged or just weird  if its a bother to you please tell me and ill stop!! 
+• HEAVILY hyperfixated on capitano and blade 
+• im cool i swear
 
 **check my strawpage for more!** (being reworked)
 
