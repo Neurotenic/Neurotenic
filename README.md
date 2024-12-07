@@ -12,8 +12,7 @@
 • HEAVILY hyperfixated on capitano and blade                              
 • im cool i swear                                        
 
-**check my strawpage for more!** (being reworked)
-
+**check my strawpage for more!** 
 
 
    ![1a368593569b13299fa3e920fda9cedf](https://github.com/user-attachments/assets/2455a533-5711-4888-a9b5-cfe2c712c112)
